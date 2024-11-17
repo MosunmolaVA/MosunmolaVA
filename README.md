@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @MosunmolaVA
 - 👀 I’m interested in learning new things
 - 🌱 I’m currently learning to be a virtual assistant
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 💞️ I’m looking to collaborate on VA peojects
+- 📫 How to reach me mosunmolaolusegun@gmail.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: ...
 
